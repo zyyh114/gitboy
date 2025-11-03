@@ -1,1 +1,1 @@
-dear i had a crush on you, but it is too late to tell you the truth that i had to get away from you .
+there's nothing happend
